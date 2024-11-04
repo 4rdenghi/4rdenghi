@@ -3,5 +3,5 @@
 - Fã de Basquete e do Golden State Warriors
 - Meu filme favorito é vingadores ultimato
 
-![](https://tenor.com/pt-BR/view/jordan-poole-confused-huh-what-did-you-say-warriors-gif-27116189)
+![](https://media1.tenor.com/m/aCvGqDA17sIAAAAd/jordan-poole-confused.gif)
 "volta poole"
