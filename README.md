@@ -3,7 +3,7 @@
 - Fã de Basquete e do Golden State Warriors
 - Meu filme favorito é "vingadores ultimato"
 -
-![](https://c.tenor.com/aCvGqDA17sIAAAAd/tenor.gif)
+![](https://media1.tenor.com/m/aCvGqDA17sIAAAAd/jordan-poole-confused.gif)
 "volta poole"
 
 ## Entre em contato comigo ##
